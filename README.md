@@ -1,4 +1,4 @@
-# v2free最新地址
+# v2free官网地址
 
 最新地址：[w1.v2free.top](https://w1.v2free.top/auth/register?code=UO4o)
 
