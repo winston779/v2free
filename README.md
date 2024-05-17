@@ -1,6 +1,6 @@
 # v2free官网地址
 
-最新地址：[w1.v2free.top](https://w1.v2free.top/auth/register?code=UO4o)
+最新地址：[w1.v2free.top](https://cdn.v2free.top/auth/register?code=UO4o)
 
 ## v2free机场简介
 
